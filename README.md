@@ -2,7 +2,7 @@
 always
 baruch hashem
 thank to ella a
-today is thursday
+tomorrow is shabbes
 
 
 
