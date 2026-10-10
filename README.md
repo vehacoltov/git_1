@@ -2,7 +2,7 @@
 always
 baruch hashem
 thank to ella a
-tomorrow is shabbes
+good luck!
 
 
 
