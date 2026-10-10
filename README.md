@@ -3,7 +3,8 @@ always
 baruch hashem
 thank to ella a
 
-tomorrow is sunday
+tomorrow is shabbes
+
 
 
 
